@@ -1,4 +1,3 @@
-## Hi there, I'm Egova Riva Gustino👋
 
 I am Web Developer. Find out more about me & feel free to connect with me here:
 
